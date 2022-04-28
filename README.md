@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Emilia50
-- 👀 I’m interested in science, books, technology
+- 👀 I’m interested in science, books, technology, engineering an IT suff.
 - 🌱 I’m currently learning electrical engineering at Politechnica University
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me on mariaemilia1545@yahoo.com
